@@ -64,7 +64,7 @@ As an organization, NC Open Pass regularly reaches people in government, communi
 
 # About Civic Camp
 
-NC Open Pass Civic Camp (formerly CityCamp NC) is an annual event that brings citizens, city/county/state government, academia, and businesses together to openly innovate and improve our quality of life through technology. The vision for NC Open Pass Civic Camp is to bring civic technology-focused groups together for an annual “gathering of the civic tech tribe.” ![29889135796_76d16784da_o.jpg](../../../../images/img-b9ce532b-55a1-4144-b386-2a85d08d8c6f.jpg)
+NC Open Pass Civic Camp (formerly CityCamp NC) is an annual event that brings citizens, city/county/state government, academia, and businesses together to openly innovate and improve our quality of life through technology. The vision for NC Open Pass Civic Camp is to bring civic technology-focused groups together for an annual “gathering of the civic tech tribe.” ![29889135796_76d16784da_o.jpg](../../../../images/img-24522989-4b0d-46e8-bf61-a21ece6c4f5b.jpg)
 
 The seventh annual CityCamp NC, held on September 28-30, 2017 was a huge success. Over 200 people joined us for 2½ days to listen to talks, attend workshops, and improve our community. The 2017 event included participation from Code for Asheville, Code for Cary, Code for Durham, Code for Greensboro, and Code for Raleigh.
 
@@ -89,11 +89,11 @@ North Carolina innovators are ready to create positive impact and economic devel
 
 Be where government decision-makers and doers convene.
 
-![](../../../../images/img-01d71645-a3ba-4ec7-9419-d995d4119cf4.png)
+![](../../../../images/img-1e690bf1-8309-4f4b-b37e-56f6e8d07555.png)
 
-![](../../../../images/img-692bc584-0111-468d-9254-bfd924c84d72.png)--
+![](../../../../images/img-a7001402-9182-4d90-b1f6-a150d9d8e740.png)--
 
-![](../../../../images/img-e2388e00-3ab0-4553-b337-a2e60534b2ce.png)
+![](../../../../images/img-a88b3aa8-ef9e-4436-b9b9-1a4e562ddde2.png)
 
 # <a id="_b5jl8gbajr3o"></a>
 
